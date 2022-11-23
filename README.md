@@ -1,1 +1,1 @@
-# Coursework-at-Chennai-MAthematical-Institute
+# Coursework-at-Chennai-Mathematical-Institute
